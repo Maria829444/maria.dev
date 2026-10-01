@@ -35,5 +35,7 @@
 
 ## 📬 Como Falar Comigo
 
-- 💼 **LinkedIn:** [Maria Fernanda](https://www.linkedin.com/in/maria-fernanda-ab1a23312)
+- 💼 **LinkedIn:https://www.linkedin.com/in/maria-fernanda-ab1a23312
+- 📧 **E-mail: mf211636@gmail.com)
+em- 💼 **LinkedIn:** [Maria Fernanda](https://www.linkedin.com/in/maria-fernanda-ab1a23312)
 - 📧 **E-mail:** [mf211636@gmail.com](mailto:mf211636@gmail.com)
